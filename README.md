@@ -1,7 +1,15 @@
-#Russian Fishing
-1.***блесны***ъ
-https://avatars.dzeninfra.ru/get-zen_doc/271828/pub_66aa4ffe28c2983e3f06c3eb_66aa510bd178bc6c394421af/scale_1200
+**Russian Fishing**
+
+1.***блесны***
+
+![scale_1200](https://github.com/user-attachments/assets/1b52bf65-9414-4b71-96b4-b06d2c73844c)
+
 2.***удочки***
-https://avatars.mds.yandex.net/i?id=e35c57b9764d2f035b9a10eb5e56086b_l-10870276-images-thumbs&n=13
+
+![6705281593](https://github.com/user-attachments/assets/e8c93864-7823-4981-a6f9-74846b58118b)
+
 3.***крючки***
-https://avatars.mds.yandex.net/i?id=e76d9606fb4b59e3a7c65590597f1a12_l-3979623-images-thumbs&n=13
+
+![scale_1200 (1)](https://github.com/user-attachments/assets/eac3859d-cba2-4878-9e26-72bbb02c619b)
+
+
